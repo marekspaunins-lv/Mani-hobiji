@@ -1,4 +1,4 @@
-Mana mājaslapa pat maniem hobijhiem
+Mana mājaslapa par maniem hobijhiem
 
         
 
